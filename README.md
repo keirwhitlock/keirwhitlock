@@ -3,4 +3,4 @@
 
 ### Links
 * [Homepage](https://www.keirwhitlock.co.uk/)
-* [LinkedIn](https://linktr.ee/keirwhitlock)
+* [LinkedIn](https://www.linkedin.com/in/keirwhitlock/)
